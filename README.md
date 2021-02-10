@@ -1,5 +1,5 @@
 # EUP_EMS_V2
-JOIN: https://discord.gg/9EpfurX8ny
+JOIN: https://discord.gg/9Mac9tUYhw
 
 Preview: https://imgur.com/a/UG83JEw
 
